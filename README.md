@@ -51,4 +51,12 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=ledhoang&icon=0&color=0)](https://visitcount.itsvg.in)
 
+Art by Joan G. Stark
+              _  _
+             /o\/o\-._   _.-'^'^^'^^'^^"^^'-.
+    .OO.----'\ /\ /   `-'                /^  ^^-._
+   (    `                 \             |    _    ^^-._
+    VvvvvvvVvv`___...)_/  /_/_/_/_/_/_/_/\  (__________^^-.
+jgs  `^^^^^^^^`       /  /                >  >        _`)  )
+                     (((`                (((`        `'--'^
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
